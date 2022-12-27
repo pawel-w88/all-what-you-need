@@ -1,3 +1,3 @@
-# al-what-you-need
+# all-what-you-need
 
 https://pawel-w88.github.io/all-what-you-need/
